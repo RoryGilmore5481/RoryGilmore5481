@@ -1,16 +1,20 @@
-## Hi there 👋
+## Hi guys, how are you? 🌵🎇
 
-<!--
-**RoryGilmore5481/RoryGilmore5481** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Me chamo Eduarda, mas podem me chamar de Duda
 
-Here are some ideas to get you started:
+- Estou cursando o último ano do ensino médio
+- Estou no 4° estágio de 6 de um curso da língua francesa
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Procuro aprender coisas novas e me desenvolver a todo momento
+
+- Utilizo este espaço como meio para receber nota no itinerário formativo de _Tecnologia e Robótica_ kkkkkkk
+
+- How to reach me:
+
+ pelo instagram:  ![@eduarda_beltrao](https://www.instagram.com/eduarda_beltrao?igsh=MzZ3bXdmaWZxa2Nv)
+
+ pelo e-mail: lemebeltraoeduarda@gmail.com
+
+![](https://media1.tenor.com/m/_kYpG52ZvbUAAAAd/gilmore-girls-rory-gilmore.gif)
+
+ 
