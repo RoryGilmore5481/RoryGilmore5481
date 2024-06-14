@@ -15,6 +15,8 @@ Me chamo Eduarda, mas podem me chamar de Duda
 
  pelo e-mail: lemebeltraoeduarda@gmail.com
 
-![](https://media1.tenor.com/m/_kYpG52ZvbUAAAAd/gilmore-girls-rory-gilmore.gif)
 
+
+
+![](https://media1.tenor.com/m/_kYpG52ZvbUAAAAd/gilmore-girls-rory-gilmore.gif)
  
